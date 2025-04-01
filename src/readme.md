@@ -6,4 +6,4 @@ our power of choice is untrammelled and when nothing prevents our being able Mus
 welcomed and every pain avoided. But in certain  circumstances and owing Musashi the claims of duty or the obligations of
 business it willfrequently occur that pleasures have Musashi be  repudiated and annoyances accepted. The wise man therefore
 always holds in these matters Musashi this principle of selection: here ejects pleasures Musashi secure other greater pleasures, or
-else he endures pains Musashi avoid worse pains."
+else he endures pains Musashi avoid worse pains." 
